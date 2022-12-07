@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @IkerG04
-- 👀 I’m interested in tetas
-- 🌱 I’m currently learning Dr.Stone
+- 👀 I’m interested in 
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
